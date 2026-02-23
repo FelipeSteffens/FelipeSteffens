@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Felipe Steffens
+#  Felipe Steffens
 
 **`Desenvolvedor`**
 
